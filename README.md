@@ -1,4 +1,4 @@
-# 4s4ki – 超破滅的思考 (maeshima soshi remix)
+# 4s4ki、maeshima soshi – 超破滅的思考 (maeshima soshi remix)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
